@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Html and CSS**
 
-- 📫 How to reach me **https://www.linkedin.com/in/suganya-sri-964b0566/**
+- 📫 How to reach me **https://www.linkedin.com/in/suganya-sri/**
 
 - ⚡ Fun fact **I really loves going shopping and exploring new places all around the world. I enjoy hanging out with friends and having a good time together. When it comes to food, I really like Mediterranean dishes, with all those tasty flavors. And guess what? My favorite dessert is chocolate cup cake – they just can't resist its deliciousness. In a nutshell, they're all about having fun, enjoying good food, and making awesome memories with friends!**
 
